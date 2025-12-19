@@ -1,7 +1,7 @@
 <p align="center"> <a href="https://hits.sh/github.com/TimmyDrake/"><img alt="Hits" src="https://hits.sh/github.com/TimmyDrake.svg?style=plastic&label=Bird_Watchers&extraCount=1&color=840022&labelColor=0d0d12"/></a> </p>
 
 <div align="center">
-<img src="https://img.sanishtech.com/u/a15093772b8bfe298a3ce9e6cfbbf629.png" width="800" height="318">
+<img src="https://i.postimg.cc/Pq6WMs2c/Captura-de-pantalla-2025-12-16-a-la(s)-3-54-02-a-m.png" width="800" height="318">
 
 <div align="center">
   
@@ -13,7 +13,7 @@
 
 </div>
 
-<img src="https://img.sanishtech.com/u/583c97b0dac4a194e1c478afaa0e6215.png" width="800" height="900">
+<img src="https://i.postimg.cc/c1vmXCqh/si.png" width="800" height="900">
 
 <div align="center">
 <img src="https://media.giphy.com/media/WLuImU3RYEFCHYl9bp/giphy.gif" width="150" height="40">    <img src="https://media.giphy.com/media/metFS49kBohcuPvjml/giphy.gif" width="150" height="40">    <img src="https://blinki.es/blinkies/superhero/batman-emblem.gif" width="150" height="40">    <img src="https://media1.tenor.com/m/LQCJRQcUkVAAAAAC/black-blinkie-black.gif" width="150" height="40">    <img src="https://blinki.es/blinkies/movie/i-am-batman.gif" width="150" height="40">
