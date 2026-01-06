@@ -5,7 +5,7 @@
 
 <div align="center">
   
-⤷ ୭˚.[StrawPage](https://timmdrake.straw.page).˚୭‎‎ ‎ ‎ ‎ ‎ ♬⋆.˚[Spotify](https://open.spotify.com/user/3famw1egzsxv2kzekv5e045br?si=914223dc7de84ebe)˚.⋆♬‎ ‎ ‎ ‎ ‎ ⋆.˚✮ [My WOT](https://www.yourworldoftext.com/~Amy_Blv/omeganest) ✮˚.⋆ ‎ ‎ ‎ ‎  ₊‧꒰ა[Pronouns](https://en.pronouns.page/@Ranbius_BLV)໒꒱ ‧₊ ‎ ‎ ‎ ‎ 𖠰.˖݁ [Color my tree!](https://colormytree.me/2025/01KBNFZKVW3MQMTAEDK5K4JEK8) ݁˖.𖠰
+⤷ ୭˚.[StrawPage](https://timmdrake.straw.page).˚୭‎‎ ‎ ‎ ‎ ‎ ♬⋆.˚[Spotify](https://open.spotify.com/user/3famw1egzsxv2kzekv5e045br?si=914223dc7de84ebe)˚.⋆♬‎ ‎ ‎ ‎ ‎ ⋆.˚✮ [My WOT](https://www.yourworldoftext.com/~Amy_Blv/omeganest) ✮˚.⋆ ‎ ‎ ‎ ‎  ₊‧꒰ა[Pronouns](https://en.pronouns.page/@Ranbius_BLV)໒꒱ ‧₊ ‎ ‎ ‎ ‎ ✎.˖݁ [Sign my ATA](https://amyblv.atabook.org/) ݁˖.✎
 </div>
 
 
