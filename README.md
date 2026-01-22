@@ -4,7 +4,7 @@
 <img src="https://i.postimg.cc/Pq6WMs2c/Captura-de-pantalla-2025-12-16-a-la(s)-3-54-02-a-m.png" width="800" height="318">
 
 <div align="center">
-  
+
 ⤷ ୭˚.[StrawPage](https://timmdrake.straw.page).˚୭‎‎ ‎ ‎ ‎ ‎ ♬⋆.˚[Spotify](https://open.spotify.com/user/3famw1egzsxv2kzekv5e045br?si=914223dc7de84ebe)˚.⋆♬‎ ‎ ‎ ‎ ‎ ⋆.˚✮ [My WOT](https://www.yourworldoftext.com/~Amy_Blv/omeganest) ✮˚.⋆ ‎ ‎ ‎ ‎  ₊‧꒰ა[Pronouns](https://en.pronouns.page/@Ranbius_BLV)໒꒱ ‧₊ ‎ ‎ ‎ ‎ ✎.˖݁ [Sign my ATA](https://amyblv.atabook.org/) ݁˖.✎
 </div>
 
