@@ -16,8 +16,8 @@
 <img src="https://i.postimg.cc/c1vmXCqh/si.png" width="800" height="900">
 
 <div align="center">
-  <details open>
 <summary><b><strong>𝙱𝚕𝚒𝚗𝚔𝚒𝚎𝚜</strong></b></summary>
+</div>
 
 <div align="center">
   <details open>
